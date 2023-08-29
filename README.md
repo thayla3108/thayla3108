@@ -1,0 +1,4 @@
+- 👋 oi eu sou a @thayla3108
+- 👀 ai papai.
+- 🌱 adora flores.
+- 💞️ amo ler 
